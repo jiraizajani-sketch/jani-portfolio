@@ -60,8 +60,3 @@ Feel free to explore my projects and reach out if you have questions or collabor
 
 GitHub: github.com/jiraizajani-sketch
 
-Email: (add your email here if you want)
-
-LinkedIn: (optional — add if available)
-
-Instagram: (optional)
